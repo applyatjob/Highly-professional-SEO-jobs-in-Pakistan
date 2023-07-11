@@ -10,4 +10,5 @@ Industry Recognition: Highly professional SEO jobs in Pakistan can provide indus
 To find highly professional SEO jobs in Pakistan, individuals can explore online job portals, company websites, professional networking platforms, and industry-specific events. It is essential to showcase relevant skills, certifications, and experience in SEO on your resume and during interviews. Continuous learning, staying updated with industry trends, and networking with professionals can further enhance your chances of securing highly professional SEO jobs in Pakistan
 The job description link is given at below
 https://youtu.be/-rKrPEd9lSI
+<iframe width="853" height="480" src="https://www.youtube.com/embed/-rKrPEd9lSI" title="SEO Lead" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
